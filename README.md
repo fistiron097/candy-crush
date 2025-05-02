@@ -1,1 +1,1 @@
-Simple reolica of candy crush
+Add new innovation to this candy crush replica
